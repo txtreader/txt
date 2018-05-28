@@ -1,3 +1,4 @@
+No advertising、沒廣告、没广告 down url:https://play.google.com/store/apps/details?id=com.txtfile.readerfufei
 contact
 email:txtreader01@gmail.com
 skype:txtreader01@gmail.com
