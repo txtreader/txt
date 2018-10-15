@@ -1,4 +1,5 @@
 No advertising、沒廣告、没广告 down url:https://play.google.com/store/apps/details?id=com.txtfile.readerfufei
+推薦一款好玩的小遊戲、推荐一款好玩的小游戏、Recommend a fun little game  :https://play.google.com/store/apps/details?id=txtreader.game.com.gametxtreader
 contact
 email:txtreader01@gmail.com
 skype:txtreader01@gmail.com
